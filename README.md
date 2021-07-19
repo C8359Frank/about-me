@@ -1,3 +1,9 @@
-# about-me
-I want to write about me
-![image (1)](https://user-images.githubusercontent.com/79835740/126129566-4aec62d0-28d8-491f-b06a-da27e0b7265e.png)
+Hi there 👋
+🏆 I love technology and like to help others with any knowledge that I have
+✨ Please Feel Free to Reach Out if You Have Any Questions or Suggestions
+You can show some ❤️   by starring some of the repositories 😄
+✨ Enthusiastic DevOps eager to contribute to team success through hard work,
+Attention to detail and excellent organizational skills.
+✨ Believes in the importance of learning new things every day.
+A lifelong learner.
+✨ Motivated to learn, grow and excel in IT industry.
