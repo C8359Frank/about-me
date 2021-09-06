@@ -8,3 +8,4 @@ Attention to detail and excellent organizational skills.
 A lifelong learner.
 ✨ Motivated to learn, grow and excel in IT industry.
 Hello world Gs-world
+www
