@@ -1,4 +1,4 @@
-Hi everybody 
+Hello everybody 
 🏆 I love technology matters and like to help others with any knowledge that I have
 ✨ Please Feel Free to Reach Out if you Have Any Questions or Suggestions
 You can show some ❤  by starring some of the repositories 😄
