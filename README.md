@@ -7,4 +7,4 @@ Attention to detail and excellent organizational skills.
 ✨ Believes in the importance of learning new things every day.
 A lifelong learner.
 ✨ Motivated to learn, grow and excel in IT industry.
-Hello world Gs-fans
+Hello world Gs-fanatik 
