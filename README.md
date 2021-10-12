@@ -1,5 +1,5 @@
 Hello everybody!
-Have a nice day I love technology matters and like to help others with any knowledge that I have
+Have a nice day .I love technology matters and like to help others with any knowledge that I have
 ✨ Please Feel Free to Reach Out if you Have Any Questions or Suggestions
 You can show some ❤  by starring some of the repositories.
 ✨ Enthusiastic DevOps eager to contribute to team success through hard work,
