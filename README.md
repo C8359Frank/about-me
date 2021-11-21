@@ -1,2 +1,2 @@
 # about-me
-I want to write about my repo
+I want to write about my repod
